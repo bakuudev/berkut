@@ -1,2 +1,1 @@
-# bakuuu.github
-ddddddd
+https://bakww17.github.io/bakuuu.github/
